@@ -1,5 +1,5 @@
 ## Made With :heart: by 
 - Frimpong Opoku Agyemang
-- Jefferey Izuorah
+- Jeffrey Izuorah
 - Stanley Olajide
 - Alex Miseda
